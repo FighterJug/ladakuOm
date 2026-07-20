@@ -1,3 +1,2 @@
-This is the ladakuOm's Project 2git 
-Wow This is amazing 
-qwerty
+This is the ladakuOm's Project - 2
+THis is not Amazing Jug
