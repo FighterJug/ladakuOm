@@ -1,1 +1,2 @@
-This is the ladakuOm's Project 1git 
+This is the ladakuOm's Project - 2
+THis is not Amazing Jug
